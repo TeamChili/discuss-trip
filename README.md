@@ -1,5 +1,10 @@
 # Let's get inspired and do something nice!
 
+## Timeline
+
+Agreed date: 2017-06-02 
+Time: TBD
+
 ## Option 1: Maurach/Achensee Trip
 
 ### Summary
@@ -34,30 +39,4 @@ The lake veiw:
 * [pic_1](https://500px.com/photo/176716027/the-caribbean-feeling-in-austria-by-christian-hochwimmer?ctx_page=3&from=search&ctx_q=achensee&ctx_type=market&ctx_sort=relevance)
 * [pic_2](https://500px.com/photo/204587943/what-a-wonderful-world-2-raw-image-by-keri?ctx_page=1&from=search&ctx_q=achensee&ctx_type=market&ctx_sort=pulse)
 * [pic_3](https://500px.com/photo/143502725/nature-s-peace-by-keri?ctx_page=1&from=search&ctx_q=achensee&ctx_type=market&ctx_sort=pulse)
-
-## Example entry:
-
-|  |  |
-| ------------- | ------------- |
-|location: | Sniezka, CZ/PL |
-| distance from Munich: | 560 km, 7 h by car |
-| walking to top time: | 4 h |
-| hostel on top: | yes | 
-| cable car/lift: | yes |
-| shower: | maybe |
-| train | maybe |
- 
-### scenario  
-
-We leave on Friday evening, drive all night and socialize/drink in bus/train, in morning we start climibng then we are on top, drink more, take shower and go back. 
-
-## end of example
-
-
-
-
-
-
-
-
 
