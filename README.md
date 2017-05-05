@@ -1,6 +1,6 @@
 # Let's get inspired and do something nice!
 
-## Maurach/Achensee Trip
+## Option 1: Maurach/Achensee Trip
 
 ### Summary
 
