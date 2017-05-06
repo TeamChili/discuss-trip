@@ -41,3 +41,32 @@ The lake veiw:
 * [pic_3](https://500px.com/photo/143502725/nature-s-peace-by-keri?ctx_page=1&from=search&ctx_q=achensee&ctx_type=market&ctx_sort=pulse)
 
 ***
+
+
+
+## Option 2: Spitzingsee
+
+### Summary
+
+| | | |
+| ------------- | ------------- | ------------- |
+| location: | Spitzingsee, DE | http://www.alpenverein.de/DAV-Services/Huettensuche/#fu=1&zc=14,11.87888,47.65851 |
+| distance from Munich: | ~60 km, 1h by car | [Google Map Route](https://www.google.de/maps/dir/Tiroler+Pl.,+81545+M%C3%BCnchen/Spitzingsee/@47.8814712,11.5122603,10z/data=!3m1!4b1!4m13!4m12!1m5!1m1!1s0x479ddf1dfec8ae43:0xd5f1940e814cc32a!2m2!1d11.5642607!2d48.0958273!1m5!1m1!1s0x477627793bf2561d:0xef0d7d5a4b5b986!2m2!1d11.8851375!2d47.6635745) |
+| Hiking | several oportunities | Taubenstein about 2h, Rosskopf about 2h. both have cable cars as well    |
+
+There are multiple huts to stay overnight. Prices and rooms vary. Some are near the lake (Albert-Link Hütte). Some req. ascending (Schönfeldhütte).
+
+
+***
+
+
+
+## Option 3: Day Trip Blomberg
+
+http://www.blombergbahn.com/de/willkommen/
+about 1h south of munich
+nice and easy ascend, cablecar thingy available, summer tobogan
+
+
+***
+
