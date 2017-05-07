@@ -70,3 +70,19 @@ nice and easy ascend, cablecar thingy available, summer tobogan
 
 ***
 
+## Option 4: Zahmer Kaiser
+
+### Summary
+
+| | | |
+| ------------- | ------------- | ------------- |
+| location: | Zahmer Kaiser, AT | http://zahmerkaiser.com/ |
+| distance from Munich: | ~90 km, 1h by car | [Google Map Route](https://www.google.de/maps/dir/Tiroler+Platz,+Munich/Zahmer+Kaiser/@47.8681994,11.6451435,10z/data=!3m1!4b1!4m13!4m12!1m5!1m1!1s0x479ddf1dfec8ae43:0xd5f1940e814cc32a!2m2!1d11.5642607!2d48.0958273!1m5!1m1!1s0x0:0x43e894024bdbd950!2m2!1d12.287768!2d47.637728) |
+| Hiking | several oportunities either on the mountain or in the valley | https://www.bergtour-online.de/beschreibungen/wanderungen-kaisergebirge/    |
+
+There is a quite nice place to stay overnight: Berghof Zahmer Kaiser. We stayed there already. The rooms are quite ok + there are showers =). https://www.zahmerkaiser.info/ It can be reached by foot (less than 1h ascend or by chairlift). There's also a tobogan , which is quite some fun.
+
+***
+
+
+
