@@ -70,6 +70,19 @@ nice and easy ascend, cablecar thingy available, summer tobogan
 
 ***
 
+## Option 4: Zahmer Kaiser
+
+### Summary
+
+| | | |
+| ------------- | ------------- | ------------- |
+| location: | Zahmer Kaiser, AT | http://zahmerkaiser.com/ |
+| distance from Munich: | ~90 km, 1h by car | [Google Map Route](https://www.google.de/maps/dir/Tiroler+Platz,+Munich/Zahmer+Kaiser/@47.8681994,11.6451435,10z/data=!3m1!4b1!4m13!4m12!1m5!1m1!1s0x479ddf1dfec8ae43:0xd5f1940e814cc32a!2m2!1d11.5642607!2d48.0958273!1m5!1m1!1s0x0:0x43e894024bdbd950!2m2!1d12.287768!2d47.637728) |
+| Hiking | several oportunities either on the mountain or in the valley | https://www.bergtour-online.de/beschreibungen/wanderungen-kaisergebirge/    |
+
+There is a quite nice place to stay overnight: Berghof Zahmer Kaiser. We stayed there already. The rooms are quite ok + there are showers =). https://www.zahmerkaiser.info/ It can be reached by foot (less than 1h ascend or by chairlift). There's also a tobogan , which is quite some fun.
+
+***
 ## Option 4: Wolfgangsee
  
 This is an alternative choice - we go by car to Sankt Gilgen(AT). It is 180 km by car from work - approx.2 hours by car.
@@ -85,5 +98,4 @@ But there are a lot of wonderful places as it is located on the Wolfgangsee
  
 [photo1](https://www.google.de/maps/@47.768632,13.3872443,3a,75y,90t/data=!3m8!1e2!3m6!1s-zlhtnWepKc4%2FV86oymsIpbI%2FAAAAAAAApJU%2FjYPEtgR9YNYLkG5yj_857JHDWjEm0qY6gCJkC!2e4!3e12!6s%2F%2Flh5.googleusercontent.com%2F-zlhtnWepKc4%2FV86oymsIpbI%2FAAAAAAAApJU%2FjYPEtgR9YNYLkG5yj_857JHDWjEm0qY6gCJkC%2Fw203-h114-k-no%2F!7i4896!8i2752?hl=ru)
 [photo2](https://www.google.de/maps/place/5342+%D0%A4%D1%80%D0%B0%D0%BD%D1%86%D0%BE%D0%B7%D0%B5%D0%BD%D1%88%D0%B0%D0%BD%D1%86%D0%B5,+%D0%90%D0%B2%D1%81%D1%82%D1%80%D0%B8%D1%8F/@47.749569,13.387742,3a,75y,90t/data=!3m8!1e2!3m6!1s119416522!2e1!3e10!6s%2F%2Flh5.googleusercontent.com%2Fproxy%2FbLklIbSAGHoANciSoevEaHQX0gaQhXoiBLWijaHpxVVAFC1O6lu1mh9GLx6j9NAFKDQOovKfI8u8YLSgtn9gSLCms7xbWEA%3Dw203-h135-k-no!7i3872!8i2592!4m5!3m4!1s0x4776ba9237afd1a1:0x45b795817f051cbd!8m2!3d47.7472595!4d13.378939?hl=ru)
- 
  
