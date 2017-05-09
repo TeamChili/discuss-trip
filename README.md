@@ -83,7 +83,7 @@ nice and easy ascend, cablecar thingy available, summer tobogan
 There is a quite nice place to stay overnight: Berghof Zahmer Kaiser. We stayed there already. The rooms are quite ok + there are showers =). https://www.zahmerkaiser.info/ It can be reached by foot (less than 1h ascend or by chairlift). There's also a tobogan , which is quite some fun.
 
 ***
-## Option 4: Wolfgangsee
+## Option 5: Wolfgangsee
  
 This is an alternative choice - we go by car to Sankt Gilgen(AT). It is 180 km by car from work - approx.2 hours by car.
 [Google Maps Route](https://goo.gl/maps/YbTR4PQvmWQ2)
