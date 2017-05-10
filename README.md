@@ -2,7 +2,7 @@
 
 ## Timeline
 
-Agreed date: 2017-06-02 
+Agreed date: TBD 
 Time: TBD
 
 ## Option 1: Maurach/Achensee Trip
