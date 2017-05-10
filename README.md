@@ -84,9 +84,15 @@ There is a quite nice place to stay overnight: Berghof Zahmer Kaiser. We stayed 
 
 ***
 ## Option 5: Wolfgangsee
- 
-This is an alternative choice - we go by car to Sankt Gilgen(AT). It is 180 km by car from work - approx.2 hours by car.
-[Google Maps Route](https://goo.gl/maps/YbTR4PQvmWQ2)
+
+
+| | | |
+| ------------- | ------------- | ------------- |
+|||
+|This is an alternative choice - we go by car to Sankt Gilgen(AT). |It is 180 km by car from work - approx.2 hours by car. | 
+[Google Maps Route](https://goo.gl/maps/YbTR4PQvmWQ2) |
+
+
 We can go hiking in the morning here - [360 degree photo from the mountain](https://www.google.de/maps/place/%D0%A6%D0%B2%D1%91%D0%BB%D1%8C%D1%84%D0%B5%D1%80%D1%85%D0%BE%D1%80%D0%BD/@47.7425461,13.3517113,3a,75y,40h,90t/data=!3m8!1e1!3m6!1s-CnRAPEHMDeE%2FV3ZXOD-iNuI%2FAAAAAAAAEEw%2FDOmO7PWtBxEtiZuTCPoHH-Yo0P5pQtCqQCLIB!2e4!3e11!6s%2F%2Flh3.googleusercontent.com%2F-CnRAPEHMDeE%2FV3ZXOD-iNuI%2FAAAAAAAAEEw%2FDOmO7PWtBxEtiZuTCPoHH-Yo0P5pQtCqQCLIB%2Fw203-h100-k-no-pi-0-ya339.5-ro-0-fo100%2F!7i7168!8i3584!4m12!1m6!3m5!1s0x4776baea490b943d:0x98f87fe45d0e80f!2sLueg+-+Austria+Jugendhotel+GmbH!8m2!3d47.7539923!4d13.372064!3m4!1s0x0:0xf838a1578d810f77!8m2!3d47.7425178!4d13.3514678!6m1!1e1?hl=ru)
 [Another photo](https://www.google.de/maps/@47.7434,13.352073,3a,75y,90t/am=t/data=!3m8!1e2!3m6!1s35196517!2e1!3e10!6s%2F%2Flh6.googleusercontent.com%2Fproxy%2F-Z8WloXBAx4GVKCwtOD6rbj4bdbg_wbpp9HcWentBZiSkUwBIu_xsSd7sV6-GiM1y26Y0T-th2O64onMAXQmPar_vy6ItQ%3Dw203-h126-k-no!7i1680!8i1050?hl=ru)
 It takes [2 hours](http://www.bergfex.com/sommer/st-gilgen-zwoelferhorn/touren/wandern/#/sommer/salzburg/touren/wanderung/7484,zwoelferhorn-st-gilgen-ueber-elferstein/)
