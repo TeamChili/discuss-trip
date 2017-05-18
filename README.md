@@ -2,7 +2,8 @@
 
 ## Timeline
 
-Agreed date: TBD 
+Agreed date: 2 Jun - 3 Jun
+
 Time: TBD
 
 ## Option 1: Maurach/Achensee Trip
